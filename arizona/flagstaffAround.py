@@ -21,3 +21,15 @@ https://www.flagstaff.com/attractions
 https://www.visitarizona.com/uniquely-az/parks-and-monuments/crescent-moon-picnic-area
 https://www.fs.usda.gov/recarea/coconino/recarea/?recid=55286
 
+
+  
+  
+ ` near payson 
+  Stoneman Lake
+  https://www.tripadvisor.com/Attraction_Review-g31288-d142977-Reviews-Stoneman_Lake-Munds_Park_Arizona.html
+    
+  visit  lookout mountain near  stoneman lake 
+  
+  
+  
+  
