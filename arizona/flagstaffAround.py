@@ -29,6 +29,9 @@ pumkin  patch
 `Crescent Moon Picnic Area  Sedona 
 https://www.visitarizona.com/uniquely-az/parks-and-monuments/crescent-moon-picnic-area
 https://www.fs.usda.gov/recarea/coconino/recarea/?recid=55286
+ cathedral rock  view
+
+
   
   
  ` near payson 
