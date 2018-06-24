@@ -1,7 +1,7 @@
 
 
 
-
+*********** Flagstaff  Area ***********************************************
 `Upper Lake Mary Near Flagstaff
 http://www.arizona-leisure.com/upper-lake-mary.html
 
@@ -26,6 +26,8 @@ horse back rides
 pumkin  patch 
 4848 Lake Mary Road, Flagstaff AZ 86001
   
+  
+********* Sedona Area *************************************
 `Crescent Moon Picnic Area  Sedona 
 https://www.visitarizona.com/uniquely-az/parks-and-monuments/crescent-moon-picnic-area
 https://www.fs.usda.gov/recarea/coconino/recarea/?recid=55286
@@ -34,7 +36,7 @@ https://www.fs.usda.gov/recarea/coconino/recarea/?recid=55286
 
   
   
- ` near payson 
+ ******** near payson *******************************************************
   Stoneman Lake
   https://www.tripadvisor.com/Attraction_Review-g31288-d142977-Reviews-Stoneman_Lake-Munds_Park_Arizona.html
     
