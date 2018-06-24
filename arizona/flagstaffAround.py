@@ -40,6 +40,11 @@ https://www.fs.usda.gov/recarea/coconino/recarea/?recid=55286
     
   visit  lookout mountain near  stoneman lake 
   
+  ==Fossil Creek 
+  https://www.fs.usda.gov/recarea/coconino/recarea/?recid=75356
+  https://www.tripadvisor.com/Attraction_Review-g60904-d9838930-Reviews-Fossil_Creek_Wilderness-Camp_Verde_Arizona.html   
+    
+  
   
   
     
