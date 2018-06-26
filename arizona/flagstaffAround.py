@@ -25,7 +25,14 @@ Historic Hitchin' Post Stables
 horse back rides 
 pumkin  patch 
 4848 Lake Mary Road, Flagstaff AZ 86001
-  
+ 
+ 
+https://www.flagstaffarizona.org/things-to-do/regional-attractions/
+## Seligman   
+https://www.visitarizona.com/cities/northern/seligman/    
+## Williams   
+https://www.visitarizona.com/cities/northern/williams
+
   
 ********* Sedona Area *************************************
 `Crescent Moon Picnic Area  Sedona 
