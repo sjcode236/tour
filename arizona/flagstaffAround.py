@@ -28,9 +28,9 @@ pumkin  patch
  
  
 https://www.flagstaffarizona.org/things-to-do/regional-attractions/
-## Seligman   
+*** Seligman   
 https://www.visitarizona.com/cities/northern/seligman/    
-## Williams   
+*** Williams   
 https://www.visitarizona.com/cities/northern/williams
 
   
