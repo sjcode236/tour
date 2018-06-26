@@ -27,6 +27,8 @@ pumkin  patch
 4848 Lake Mary Road, Flagstaff AZ 86001
  
  
+
+
 https://www.flagstaffarizona.org/things-to-do/regional-attractions/
 *** Seligman   
 https://www.visitarizona.com/cities/northern/seligman/    
@@ -40,6 +42,9 @@ https://www.visitarizona.com/uniquely-az/parks-and-monuments/crescent-moon-picni
 https://www.fs.usda.gov/recarea/coconino/recarea/?recid=55286
  cathedral rock  view
 
+Lo-Lo-Mai Springs Campground
+11505 E Lolo Mai Rd, Cornville, AZ 86325
+http://www.lolomai.com/reservations/
 
   
   
