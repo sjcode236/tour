@@ -41,3 +41,5 @@ Prescott Valley, AZ 86314
 ====Granite Creek Park=====
 554 6th St, Prescott, AZ 86301
    =heared not maintained 
+  =lot of big trees 
+  =kids play area
