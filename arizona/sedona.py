@@ -11,6 +11,11 @@
 =====cornville is near  sedona=============================================
 there  is old  small country market  in cornville  and restaurant 
 
+
+========
+http://www.phoenixmag.com/travel/cornville-weekend.html
+  
+
 ====Folded Hills Orchard ===============
 1240 East Willow Point Road, Cornville, AZ, 86325
 (928) 634-4649
@@ -18,7 +23,15 @@ there  is old  small country market  in cornville  and restaurant
   
 ==== peach and apricot picking on pagesprings roead 
   =There is one you pick  peach , apricot  place on pagesprings road
-  
+
+====Page Springs Hatchery
+1600 N Page Springs Rd, Cornville, AZ 86325
+(928) 634-4805
+
+====Bubbling Ponds Fish Hatchery =======
+1970 N Page Springs Rd, Cornville, AZ 86325
+(928) 649-1297
+
 ====http://www.oakcreekvineyards.net/
 1555 N Page Springs Rd, Cornville, AZ 86325
 928) 649-0290
@@ -31,14 +44,7 @@ http://thevineyardsbandb.com/tiki-tree-house/
 1350 N Page Springs Rd, Cornville, AZ 86325
 (928) 300-4313
 
-====Page Springs Hatchery
-1600 N Page Springs Rd, Cornville, AZ 86325
-(928) 634-4805
-
-====Bubbling Ponds Fish Hatchery =======
-1970 N Page Springs Rd, Cornville, AZ 86325
-(928) 649-1297
-
+Quiet Valley Ranch (1300 N. Page Springs Rd., 928-649-0600, $145-$225 nightly),
 ====Lo-Lo-Mai Springs Campground ======
 lolomai.com
 11505 E Lolo Mai Rd, Cornville, AZ 86325
@@ -48,6 +54,11 @@ lolomai.com
 http://www.ssguesthouse.com/ranch-house.html
 470 S. Merritt Ranch Rd, Cornville AZ 86325 
 Shirley at  1-928-300-6813
+
+====Quiet Valley Ranch ,  $145-$225 nightly
+1300 N. Page Springs Rd., 
+928-649-0600
+
 ====kisstheskyaz  cottage ====
 10545 E Creekview Dr, Cornville, AZ 86325
 www.kisstheskyaz.com
