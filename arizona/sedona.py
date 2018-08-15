@@ -32,7 +32,8 @@ http://www.phoenixmag.com/travel/cornville-weekend.html
   
 ==== peach and apricot picking on pagesprings road 
   =There is one you pick  peach , apricot  place on pagesprings road 
-
+   1300 N Page Springs Rd, Cornville, AZ 86325
+    
 ====Page Springs Hatchery
 1600 N Page Springs Rd, Cornville, AZ 86325
 (928) 634-4805
