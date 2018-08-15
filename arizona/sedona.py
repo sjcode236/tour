@@ -54,6 +54,11 @@ http://thevineyardsbandb.com/tiki-tree-house/
 1350 N Page Springs Rd, Cornville, AZ 86325
 (928) 300-4313
 
+===Page Springs Country Inn
+  http://www.pagespringsbandb.com/Vacation.html
+    928.634.4335
+    2500 N. Page Springs Road, Page Springs, AZ 863
+
 Quiet Valley Ranch (1300 N. Page Springs Rd., 928-649-0600, $145-$225 nightly),
 ====Lo-Lo-Mai Springs Campground ======
 lolomai.com
