@@ -3,13 +3,22 @@
 
 
 
-
-
-
+==Garland’s stand in Oak Creek Canyon at Indian Gardens
+  =farm-stand along the banks of Oak Creek, just across the highway from Indian Gardens Cafe & Market.
+    http://indiangardens.com/garlands-farm-stand/
+      3951 N. State Route 89a , Sedona, Arizona 86336
+      (928) 282-7702
+==Garland’s Orchard Canyon on Oak Creek
+  https://enjoyorchardcanyon.com/what-is-garlands-lodge/
+    apple and peach  buying , peach $3.50 
+    can walk through the  farm and garden (apple and vegitables  , around 10 acres )
+    dinner $60 per person
+    3951 N State Rte 89A, Sedona, AZ 86336 
+    (928) 282-3343
 
 
 =====cornville is near  sedona=============================================
-there  is old  small country market  in cornville  and restaurant 
+this is old  small country market  in cornville  and restaurant 
 
 
 ========
@@ -19,10 +28,10 @@ http://www.phoenixmag.com/travel/cornville-weekend.html
 ====Folded Hills Orchard ===============
 1240 East Willow Point Road, Cornville, AZ, 86325
 (928) 634-4649
-  =peach picking , apples , blackberries 
+  =peach & apricot picking , apples , blackberries 
   
-==== peach and apricot picking on pagesprings roead 
-  =There is one you pick  peach , apricot  place on pagesprings road
+==== peach and apricot picking on pagesprings road 
+  =There is one you pick  peach , apricot  place on pagesprings road 
 
 ====Page Springs Hatchery
 1600 N Page Springs Rd, Cornville, AZ 86325
