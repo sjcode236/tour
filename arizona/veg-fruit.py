@@ -4,7 +4,9 @@
   https://www.phoenixnewtimes.com/restaurants/the-larry-restaurant-phoenix-cocktails-happy-hour-10713509
 ===5 Charming Apple Orchards In Arizona Are Picture Perfect For A Fall Day 
   https://www.onlyinyourstate.com/arizona/az-apple-orchards/
-  
+====The 10 Best Apple Orchards in Arizona!
+  https://bestthingsaz.com/apple-picking/
+    
 ========== you pick ==============
 
 
