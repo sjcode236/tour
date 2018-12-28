@@ -11,7 +11,19 @@ https://www.tripadvisor.com/Attraction_Review-g31350-d116651-Reviews-McCormick_S
      
                     
          
-snowfall 
-west gate 
-desert ridge 
+snowfall   
+desert ridge   
+west gate   
+http://www.westgateaz.com/snow/   
+http://www.westgateaz.com/holiday/   
+ Free Carriage Rides: Westgate will offer free horse-drawn carriage rides every Friday and
+Saturday from Nov. 23 to Dec. 22. Rides will be available from 5 to 9 p.m., starting and ending in
+front of AMC Theatres. For more details, please visit www.westgateaz.com/holiday/.     
+     
+     
+       
+     
+
+
+
 
