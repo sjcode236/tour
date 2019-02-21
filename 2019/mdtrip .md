@@ -24,5 +24,13 @@ BWI
 05/29/2019 - 06/04/2019  minivan Pick-Up: 11:00 AM - Drop-Off: 11:00 AM   $537   
               standard suv  $346 AVIS
 05/29/2019 - 06/03/2019  minivan Pick-Up: 11:00 AM - Drop-Off: 11:00 AM   $544  
-              standard SUV   $353 AVIS        
+              standard SUV   $353 AVIS     
+              
+  
+Nottingham ==  ATL     
+06/05/2019 - 06/11/2019  Pick-Up: 11:00 AM - Drop-Off: 11:00 AM                
+              minivan  budget $744 ; AVIS $749   
+              standad  suv   $475  AVIS , budget   7 seats
+              
+ 
     
