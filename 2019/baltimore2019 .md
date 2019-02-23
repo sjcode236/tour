@@ -43,5 +43,16 @@ You can just take Amtrak to DC and go around on your own or take one of the hop 
 If it's during the week, look into the MARC train. Although it is a commuter train it might work for you. Here is the schedule for the Camden Line which will depart from Camden Yards...
 …maryland.gov/services/…camden_HTML.cfm      
       
-      It is really easy, though to get to DC on the MARC train, which will drop you at Union Station. I believe there are several DC tour companies that leave from Union Station. 
+      It is really easy, though to get to DC on the MARC train, which will drop you at Union Station. I believe there are several DC tour companies that leave from Union Station.   
+      
+      Very easy to hop the MARC train (you're in DC before you know it) and take a tour.
+
+There are several but we took the Tourmobile, which included Arlington National Cemetery. It was important to us to go to Arlington.    
+     
+     I took the MARC train into DC yesterday from Camden Yards station and it was a piece of cake. Just as jck said a few blocks straight down from my hotel. Took Tourmobile- the stop is located just outside Union Station and there was a person selling tickets right there at the curb. It was a great way to spend the 6-7 hours that I had. I was even able to squeeze in Arlington Cemetery.
+     dfgsdgfsdfgsdfgdfs
+     fghdgfhdfghdfghdfghdgfh
+     dgfhdgfhdfghdfhdfhdgfh
+     dgfhdgfhdgfhdgf
+
            
