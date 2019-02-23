@@ -44,7 +44,6 @@ If it's during the week, look into the MARC train. Although it is a commuter tra
 …maryland.gov/services/…camden_HTML.cfm      
       
       It is really easy, though to get to DC on the MARC train, which will drop you at Union Station. I believe there are several DC tour companies that leave from Union Station.   
-      
       Very easy to hop the MARC train (you're in DC before you know it) and take a tour.
 
 There are several but we took the Tourmobile, which included Arlington National Cemetery. It was important to us to go to Arlington.    
