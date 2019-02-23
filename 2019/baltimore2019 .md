@@ -49,7 +49,9 @@ Very easy to hop the MARC train (you're in DC before you know it) and take a tou
 There are several but we took the Tourmobile, which included Arlington National Cemetery. It was important to us to go to Arlington.
 
 ssgsdfgdfs
-     
+
+adsfdasfdasf
+
 > I took the MARC train into DC yesterday from Camden Yards station and it was a piece of cake. Just as jck said a few blocks straight down from my hotel. Took Tourmobile- the stop is located just outside Union Station and there was a person selling tickets 
      
 
