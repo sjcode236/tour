@@ -51,6 +51,7 @@ There are several but we took the Tourmobile, which included Arlington National 
 ssgsdfgdfs
 
 
+
 adsfdasfdasf
 
 > I took the MARC train into DC yesterday from Camden Yards station and it was a piece of cake. Just as jck said a few blocks straight down from my hotel. Took Tourmobile- the stop is located just outside Union Station and there was a person selling tickets 
