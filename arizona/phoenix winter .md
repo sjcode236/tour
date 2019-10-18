@@ -25,4 +25,18 @@ front of AMC Theatres. For more details, please visit www.westgateaz.com/holiday
 
 *https://www.raisingarizonakids.com/event/glendale-skate-westgate-2/all/    
      
+======October ======================================================    
+======AZ state Fair =====================     
+check for unlimited ride dates   
+discounted admission   
+read and ride    
+milk producer entry   
+
+
+
+===Anthem fest ==================
+
+
+
+=====End October =======================================     
 
