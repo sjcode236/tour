@@ -29,7 +29,8 @@ front of AMC Theatres. For more details, please visit www.westgateaz.com/holiday
 ======AZ state Fair =====================     
 https://azstatefair.com     
 https://www.facebook.com/pg/azstatefair/events/      
-https://www.facebook.com/rcsfun/     
+https://www.facebook.com/rcsfun/  RAY CAMMACK SHOWS.INC https://rcsfun.com   
+
 
 check for unlimited ride dates   
 discounted admission   
