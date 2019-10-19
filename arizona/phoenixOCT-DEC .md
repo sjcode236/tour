@@ -26,6 +26,7 @@ front of AMC Theatres. For more details, please visit www.westgateaz.com/holiday
 *https://www.raisingarizonakids.com/event/glendale-skate-westgate-2/all/    
      
 ======October ======================================================    
+https://github.com/sjcode236/tour/blob/master/arizona/2019/oct2019.md     
 ======AZ state Fair =====================     
 https://azstatefair.com     
 https://www.facebook.com/pg/azstatefair/events/      
@@ -36,8 +37,6 @@ check for unlimited ride dates
 discounted admission   
 read and ride    
 milk producer entry   
-
-
 
 ===Anthem fest ==================    
 https://www.facebook.com/daisymountainrailroad/    
