@@ -52,6 +52,9 @@ https://www.facebook.com/pg/FrazierShows/events
 FREE parking & FREE admission  
 Unlimited ride wristbands  
 
+=====pumkin patch=====================   
+http://www.tolmachoff-farms.com/corn_maze_pumpkin_patch_glendale_arizona.html    glendale 
+
 
 
 =====End October =======================================     
