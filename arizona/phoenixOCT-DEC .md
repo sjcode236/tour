@@ -5,6 +5,11 @@
 
 https://www.raisingarizonakids.com/weekend-events-phoenix-kids/    
 https://www.raisingarizonakids.com/holiday-events-arizona/    
+https://www.raisingarizonakids.com/calendar    
+     
+https://www.eventbrite.com/d/united-states--arizona/holiday--events/    
+https://www.eventbrite.com/d/az--phoenix/holiday--events/    
+     
      
  MCCORMICK-STILLMAN RAILROAD PARK        
 https://www.therailroadpark.com/events/groups/     
