@@ -27,6 +27,7 @@ front of AMC Theatres. For more details, please visit www.westgateaz.com/holiday
      
 ======October ======================================================    
 ======AZ state Fair =====================     
+https://azstatefair.com     
 check for unlimited ride dates   
 discounted admission   
 read and ride    
@@ -35,6 +36,11 @@ milk producer entry
 
 
 ===Anthem fest ==================
+https://www.onlineatanthem.com/events/autumnfest.php     
+https://www.facebook.com/AnthemCommunityCouncil     
+https://www.facebook.com/FrazierShows    
+FREE parking & FREE admission  
+Unlimited ride wristbands  
 
 
 
