@@ -42,7 +42,8 @@ milk producer entry
 https://www.facebook.com/daisymountainrailroad/    
 https://www.onlineatanthem.com/events/autumnfest.php     
 https://www.facebook.com/AnthemCommunityCouncil     
-https://www.facebook.com/FrazierShows   Frazier Shows  
+https://www.facebook.com/FrazierShows   Frazier Shows   
+https://www.facebook.com/pg/FrazierShows/events    
 FREE parking & FREE admission  
 Unlimited ride wristbands  
 
