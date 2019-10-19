@@ -28,7 +28,9 @@ front of AMC Theatres. For more details, please visit www.westgateaz.com/holiday
 ======October ======================================================    
 ======AZ state Fair =====================     
 https://azstatefair.com     
-https://www.facebook.com/pg/azstatefair/events/     
+https://www.facebook.com/pg/azstatefair/events/      
+https://www.facebook.com/rcsfun/     
+
 check for unlimited ride dates   
 discounted admission   
 read and ride    
