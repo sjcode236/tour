@@ -37,20 +37,7 @@ https://www.visitarizona.com/cities/northern/williams
 
   
 ********* Sedona Area *************************************
-`Crescent Moon Picnic Area  Sedona 
-https://www.visitarizona.com/uniquely-az/parks-and-monuments/crescent-moon-picnic-area
-https://www.fs.usda.gov/recarea/coconino/recarea/?recid=55286
- cathedral rock  view
-==pagesprings  road to cresentMoon picnic area has  you pick farms 
-
-
-
-Lo-Lo-Mai Springs Campground
-11505 E Lolo Mai Rd, Cornville, AZ 86325
-http://www.lolomai.com/reservations/
-
-Cornville ,  
-nice rural homes , cows , osterich , farm
+https://github.com/sjcode236/tour/blob/master/arizona/sedona.py   
 
 
   
