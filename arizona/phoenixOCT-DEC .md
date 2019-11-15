@@ -31,7 +31,8 @@ front of AMC Theatres. For more details, please visit www.westgateaz.com/holiday
 *https://www.raisingarizonakids.com/event/glendale-skate-westgate-2/all/    
      
 ======October ======================================================    
-https://github.com/sjcode236/tour/blob/master/arizona/2019/oct2019.md     
+https://github.com/sjcode236/tour/blob/master/arizona/2019/oct2019.md    
+
 ======AZ state Fair =====================     
 https://azstatefair.com     
 https://www.facebook.com/pg/azstatefair/events/      
@@ -55,6 +56,9 @@ Unlimited ride wristbands
 =====pumkin patch=====================   
 http://www.tolmachoff-farms.com/corn_maze_pumpkin_patch_glendale_arizona.html    glendale 
 
+======fall colors ==========================
+https://azstateparks.com/fall-colors     
+West Fork Trail Sedona 
 
 
 =====End October =======================================     
