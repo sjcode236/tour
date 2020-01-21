@@ -30,7 +30,20 @@ horse back rides
 pumkin  patch 
 4848 Lake Mary Road, Flagstaff AZ 86001
  
- 
+Riordan Mansion State Historic Park      
+https://azstateparks.com/riordan-mansion/explore/facility-information   
+
+Buffalo Park    
+215-acre park offers a 2-mile hiking loop trail, picnicking space, wildlife & scenic mountain views.
+Address: 2400 N Gemini Rd, Flagstaff, AZ 86004
+  
+Sawmill Multicultural Art and Nature County Park    
+Public park featuring demonstration backyard habitat gardens, community murals & sculptures.
+Address: 703 E Sawmill Rd, Flagstaff, AZ 86001   
+  
+Foxglenn Park
+Address: 4200 E Butler Ave, Flagstaff, AZ 86004     
+https://www.flagstaff.az.gov/1797/Foxglenn-Trail    
 
 
 https://www.flagstaffarizona.org/things-to-do/regional-attractions/
