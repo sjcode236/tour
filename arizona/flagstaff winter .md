@@ -32,7 +32,8 @@ https://www.facebook.com/SunriseParkResortAz/
 https://www.instagram.com/sunriseparkresort/    
 
 
-Fort Tuthill County Park    , 
+Fort Tuthill County Park    ,       
+https://www.coconino.az.gov/279/Fort-Tuthill-County-Park      
 https://forttuthill.com/cabins/   
 https://www.facebook.com/forttuthillaz/     
 
