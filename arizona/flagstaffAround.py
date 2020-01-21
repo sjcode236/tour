@@ -11,7 +11,11 @@ http://www.arizona-leisure.com/mormon-lake.html
 Kinnikinick Lake
 http://www.arizona-leisure.com/kinnikinick-lake.html
   
-THE ARBORETUM
+THE ARBORETUM at flagstaff  
+https://www.thearb.org/   
+https://www.facebook.com/TheArboretumAtFlagstaff/    
+  
+  
 BEARIZONA WILDLIFE PARK
 ANTELOPE CANYON & HORSESHOE BEND
 https://www.flagstaff.com/attractions
