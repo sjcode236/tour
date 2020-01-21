@@ -60,6 +60,10 @@ Foxglenn Park  ,4200 E Butler Ave, Flagstaff, AZ
  ==Nice park all around the year. Just took the family sledding less less people there than other places    
  ==Beautiful park in the summer and for winter fun.    
  
+ Wheeler Park      
+ 212 W Aspen Ave ,Flagstaff, AZ 86001     
+ 
+ 
  
  
    
