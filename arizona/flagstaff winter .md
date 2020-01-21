@@ -42,5 +42,26 @@ LOCATION:
 Little America Hotel Flagstaff ,  2515 E Butler Ave , Flagstaff, AZ86004        
 
 
+Arizona Nordic Village    
+https://www.arizonanordicvillage.com/     
+
+Crowley Pit Snow Play Area   
+
+
+https://www.flagstaff.az.gov/1923/City-Parks-Ramadas   
+https://www.yelp.com/search?cflt=parks&find_loc=Flagstaff%2C%20AZ&start=10     
+
+Oak Hill Snow Play Area    
+Benham Snow Play Area    
+Hannagan Meadow Recreation Area      
+Walker Lake     
+
+Foxglenn Park  ,4200 E Butler Ave, Flagstaff, AZ      
+ ==Nice park all around the year. Just took the family sledding less less people there than other places    
+ ==Beautiful park in the summer and for winter fun.    
+ 
+ 
+ 
+   
 
 
