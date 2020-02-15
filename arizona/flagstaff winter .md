@@ -23,8 +23,10 @@ https://www.tripadvisor.com/Attraction_Review-g60971-d559998-Reviews-Flagstaff_N
 
 http://northpoleexperience.com/     
 http://northpoleexperience.com/faq     
-
-
+https://northpoleexperience.com/faq/     
+LOCATION:     
+Little America Hotel Flagstaff ,  2515 E Butler Ave , Flagstaff, AZ86004   
+https://www.facebook.com/NorthPoleExperience/    
 
 Sunrise Park Resort ,  Greer, Arizona
 https://www.sunriseskipark.com/      
@@ -37,9 +39,7 @@ https://www.coconino.az.gov/279/Fort-Tuthill-County-Park
 https://forttuthill.com/cabins/   
 https://www.facebook.com/forttuthillaz/     
 
-https://northpoleexperience.com/faq/     
-LOCATION:     
-Little America Hotel Flagstaff ,  2515 E Butler Ave , Flagstaff, AZ86004        
+     
 
 
 Arizona Nordic Village    
