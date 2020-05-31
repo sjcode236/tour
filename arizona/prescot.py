@@ -26,7 +26,7 @@
 1200 Commerce Dr, Prescott, AZ 86305
    =kids play area 
 
-====FainPark    
+====FainPark ====   
  2205 N 5th St
 Prescott Valley, AZ 86314
 (its  near lynx  lake )
@@ -43,3 +43,10 @@ Prescott Valley, AZ 86314
    =heared not maintained 
   =lot of big trees 
   =kids play area
+  
+  
+  ====The Shrine of Saint Joseph of the Mountains (Yarnell, Arizona) 
+ 16887 Shrine Dr, Yarnell, AZ 85362
+Phone: (928) 778-5229
+  https://www.facebook.com/The-Shrine-of-Saint-Joseph-of-the-Mountains-166467053537088   
+  https://www.tripadvisor.com/Attraction_Review-g31414-d4025521-Reviews-The_Shrine_of_St_Joseph_of_the_Mountains-Yarnell_Arizona.html   
