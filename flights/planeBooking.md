@@ -19,7 +19,6 @@ skiplagged.com
 kayak.com   
 https://www.oojo.com/   
 https://www.agoda.com/#flights   
-https://www.hop2.com/   
-    book ticket with aircanada   to india   
+https://www.hop2.com/   (phils book ticket with aircanada   to india )    
  
  
