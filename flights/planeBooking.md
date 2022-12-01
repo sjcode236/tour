@@ -3,11 +3,17 @@
 |:-----|
 Travel->  Travel-Booking-sj10
 
-some sites to quick check    
-  
 
+◾ some sites to quick check    
+
+https://skiplagged.com/   
+https://www.momondo.com/   
+www.kayak.com   
+www.oojo.com   
 https://www.hop2.com/   
     book ticket with aircanada   to india    
+    
+www.flighthub.com    
     
 
 
