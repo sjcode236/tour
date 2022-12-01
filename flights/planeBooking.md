@@ -4,29 +4,22 @@
 Travel->  Travel-Booking-sj10
 
 
+==== Good rates  to manchester from ===========  
+ PHL Philadelphia International Airport     
+
 ◾ some sites to quick check    
 
 https://skiplagged.com/   
 https://www.momondo.com/   
-www.kayak.com   
-www.oojo.com   
-https://www.hop2.com/   
-    book ticket with aircanada   to india    
-    
-www.flighthub.com    
-https://www.cheapoair.com/       
-
-
-
-==== Good rates  to manchester from ===========  
- PHL Philadelphia International Airport     
  
+www.flighthub.com    
+cheapoair.com/   
 
-Cheapoair.com    
 skiplagged.com   
 kayak.com   
 https://www.oojo.com/   
 https://www.agoda.com/#flights   
- 
+https://www.hop2.com/   
+    book ticket with aircanada   to india   
  
  
